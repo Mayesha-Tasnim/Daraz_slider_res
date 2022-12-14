@@ -1,0 +1,1 @@
+# Daraz_slider_res
